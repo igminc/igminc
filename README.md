@@ -1,4 +1,4 @@
-### faz o L galerinha 👋
+### faz o L meus picanheiros 1️⃣3️🚩
 
 <!--
 **igminc/igminc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
